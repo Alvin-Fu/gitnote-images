@@ -1,1 +1,1 @@
-# gitnote-images![Snipaste_20191104_155833.png](0)
+# gitnote-images![Snipaste_20191104_155833.png](0)![title](.local/static/2019/10/2/Snipaste_2019-11-04_20-14-40.1572927220003.png)
